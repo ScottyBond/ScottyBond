@@ -1,5 +1,6 @@
 ## Hi there 👋
-⚡ Fun fact: I bodybuild everyday.
+⚡ Fun fact: I bodybuild everyday.![arnold-schwarzenegger-joven-3084198](https://github.com/user-attachments/assets/929dbf6f-2ca7-4351-a61c-350aba25f9b0)
+
 <!--
 **ScottyBond/ScottyBond** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
