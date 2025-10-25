@@ -1,5 +1,5 @@
 ## Hi there 👋
-⚡ Fun fact: I bodybuild.
+⚡ Fun fact: I bodybuild everyday.
 <!--
 **ScottyBond/ScottyBond** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
